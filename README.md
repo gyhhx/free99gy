@@ -11,19 +11,19 @@
   </tr>
   <tr>
     <td align=center><b/>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816850&from=gygit&tag=free99">◆石涛 今日点击</a><b/>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816857&from=gygit&tag=free99">◆文昭 谈古论今</a><b/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=gygit&tag=free99">◆共产党百年真相</a><b/>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816850&from=gygit">◆石涛 今日点击</a><b/>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816857&from=gygit">◆文昭 谈古论今</a><b/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833&from=gygit">◆共产党百年真相</a><b/>
     </td>
     </tr>
     <tr>
     <td align=center>请尝试不同入口，进入动态网址<br/>
-      <a href="https://cdn.rawgit.com/ogate/up/master/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=oGate">入口</a><br/>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=oGate">入口</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=oGate">入口</a><br/>
+      <a href="https://cdn.rawgit.com/ogate/up/master/oGate.htm?from=gygit">入口</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit">入口</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit">入口</a><br/>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gygit">入口</a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit">入口</a><br/>
       微信如提示停止访问该网页，须<br/>
       先点击右上角，选择浏览器打开<br/>
     </td>

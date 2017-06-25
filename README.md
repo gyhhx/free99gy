@@ -4,7 +4,10 @@
   </tr>
     <tr>
   <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点击右上角三个点，选择在浏览器中打开！<b/>
-  </tr>
+  浏览器请使用谷歌浏览器  <br/> 
+  <a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk">谷歌浏览器 👉安卓版</a>
+  <a href="https://raw.githubusercontent.com/ogate/up/master/chrome.zip">👉电脑版</a><br/>
+  </tr>
     <tr>
     <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
        <b><a href="https://cdn.rawgit.com/ogate/up/master/oGate.htm?from=gygit">动态网址1</a>

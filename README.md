@@ -1,14 +1,7 @@
 <table>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gypic2.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gypic2-1.jpg" /></td>
   </tr>
-  <tr>
-    <td align=center>网门 網門<br/>
-      固定网址，请及时收藏:<br/>
-      https://git.io/ogate<br/>
-      https://github.com/ogate/ogate<br/>
-    </td>
-    </tr>
     <tr>
   <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点击右上角三个点，选择在浏览器中打开！<b/>
   </tr>

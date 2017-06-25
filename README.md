@@ -3,10 +3,7 @@
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gypic2-1.jpg" /></td>
   </tr>
     <tr>
-  <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点右上角三个点，选择在浏览器中打开！<b/>
-  浏览器请使用谷歌浏览器  <br/> 
-  <a href="https://raw.githubusercontent.com/ogate/up/master/chrome.apk">谷歌浏览器 👉安卓版</a>
-  <a href="https://raw.githubusercontent.com/ogate/up/master/chrome.zip">👉电脑版</a><br/>
+  <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点右上角三个点，选择在浏览器中打开！<br/>
   </tr>
     <tr>
     <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
@@ -19,10 +16,10 @@
     </td>
   </tr>
   <tr>
-    <td align=center>
-      下载安卓版，更快更方便  <br/> 
+    <td align=center><b>
+      下载 网门安卓版App，更快更方便  <br/> 
       <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk">https://git.io/ogatea</a><br/>
-    <b/>◆微信中如无响应，请复制以下链接地址到非国产浏览器中打开◆<br/>
+    <b/>◆微信中如无响应，请复制以上链接地址到非国产浏览器中打开◆<br/>
     </td>
   </tr>
   <tr>
@@ -31,12 +28,11 @@
   <tr>
     <td align=center>
 大陆用户无需翻墙，<br/>
-直接登入《网门》网站，<br/>就可以分享全球精粹资源。<br/>
-《网门》揭开网络时代的新视角，<br/>引领网络时代的新风尚。<br/>
-《网门》适合手机、平板、电脑等<br/>所有网络终端用户。<br/>
-《网门》无需翻墙突破网络封锁，<br/>是稳定长效的安全网址。<br/>
-只要把网址保存在手机浏览器书签中，<br/>或保存在电脑浏览器收藏夹中，<br/>
-就可以随时打开《网门》，<br/>
-分享全球菁萃资源。<br/></td>
+直接登入《网门》网站，就可了解全球精粹资源。<br/>
+《网门》适合手机、平板、电脑等所有网络终端用户。<br/>
+《网门》无需翻墙突破网络封锁，是稳定长效的安全网址。<br/>
+只要把网址保存在手机、电脑浏览器收藏夹中，<br/>
+就可以随时打开《网门》，分享全球菁萃资源。<br/>
+</td>
   </tr>
 </table>    

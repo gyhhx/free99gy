@@ -3,7 +3,7 @@
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gypic2-1.jpg" /></td>
   </tr>
     <tr>
-  <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点右上角三个点，选择在浏览器中打开！<br/>
+  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
   </tr>
    <tr>
   <td align=center>

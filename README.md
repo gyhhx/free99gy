@@ -7,7 +7,7 @@
   </tr>
    <tr>
   <td align=center>
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816846_2_1&from=gy">视频短片：为了您的未来，请您加入</a><br/>
+  <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816846_2_1&from=gy">视频短片：为了您的未来，请您加入</a><br/>
   <a href="https://gyqxb.azureedge.net/ogST.aspx?from=gy"><b>〓〓〓君子不立危墙之下〓〓〓<br/></a>
       </td>
   </tr>

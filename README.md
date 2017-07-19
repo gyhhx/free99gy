@@ -13,7 +13,7 @@
 <td align=center>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826788&from=gyyw">◆孙政才摊大事？传司机秘书全带走 党内传达肃清影响</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826784&from=gyyw">◆18年正邪较量暴力无法摧毁正信</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826783&from=gyyw1">◆江派两名政治局委员入狱 孙政才或步后尘？</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826783&from=gyyw">◆江派两名政治局委员入狱 孙政才或步后尘？</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826703&from=gyyw">◆胡习连废江派接班人 孙政才案泄习江斗走向</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826780&from=gyyw">◆大陆首批检察官宣誓〝终身负责〞 最大冤案再引关注</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826775&from=gyyw">◆习近平要将中国领向何方？港媒：19大主题已经浮出</a><br/>

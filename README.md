@@ -20,8 +20,13 @@
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826791&from=gygit1">◆捷克人体展览引争议 旅美博士吁警方调查</a><br/>
 </td>
    </tr>
-  <tr>
-    <td align=center>↓↓↓↓音视频新闻↓↓↓↓<br/>
+  
+    <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+  </tr>
+    
+ <tr>
+    <td align=center>    
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c816850&from=gygit1">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>

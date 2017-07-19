@@ -7,7 +7,7 @@
   </td>
   </tr>
  <tr>
-<td align=center>↓↓↓↓今日热点↓↓↓↓<br/>
+<td align=center>↓↓↓↓今日要闻↓↓↓↓<br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826788&from=gygit1">◆孙政才摊大事？传司机秘书全带走 党内传达肃清影响</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826784&from=gygit1">◆18年正邪较量暴力无法摧毁正信</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826783&from=gygit1">◆江派两名政治局委员入狱 孙政才或步后尘？</a><br/>
@@ -17,16 +17,11 @@
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826715&from=gygit1">◆【禁闻】传银监会对万达下禁贷令</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826676&from=gygit1">◆〝无间道〞孙政才落马 预示什么</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826772&from=gygit1">◆习近平获3个新称呼 分析：对19大有主导权</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826772&from=gygit1">◆习近平获3个新称呼 分析：对19大有主导权</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826791&from=gygit1">◆捷克人体展览引争议 旅美博士吁警方调查</a><br/>
 </td>
    </tr>
-
   <tr>
-<td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?ogNews&from=gygit1">◆网门头条◆汇聚全球最焦点资讯</a><br/>
-   </tr>
-  <tr>
-    <td align=center>
+    <td align=center>↓↓↓↓音视频新闻↓↓↓↓<br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c816850&from=gygit1">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>

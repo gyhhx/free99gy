@@ -30,21 +30,21 @@
     
  <tr>
     <td align=center>    
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816850&from=gygit1">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816857&from=gygit1">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816860&from=gygit1">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816855&from=gygit1">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
     <tr>
       <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>

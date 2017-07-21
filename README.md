@@ -11,12 +11,12 @@
   </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826872&from=gyyw">◆维权律师再遭打压 余文生收到废证</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826871&from=gyyw">◆波兰总统签署《禁止共产主义宣传法》中国网友：我们今后也会有</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826865&from=gyyw">◆谁将孙政才拉入政治局空降重庆？ 港媒：曾庆红力推</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826874&from=gyyw">◆胡习默契出手 江泽民出局等死</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826860&from=gyyw">◆大陆WhatsApp“禁图令” 折射中共不安</a><br/>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c826858&from=gyyw">◆孙政才马失前蹄 仕途起落皆涉江泽民</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826872&from=gyyw">◆维权律师再遭打压 余文生收到废证</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826871&from=gyyw">◆波兰总统签署《禁止共产主义宣传法》中国网友：我们今后也会有</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826865&from=gyyw">◆谁将孙政才拉入政治局空降重庆？ 港媒：曾庆红力推</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826874&from=gyyw">◆胡习默契出手 江泽民出局等死</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826860&from=gyyw">◆大陆WhatsApp“禁图令” 折射中共不安</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c826858&from=gyyw">◆孙政才马失前蹄 仕途起落皆涉江泽民</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c816833_2_916&from=gyyw">◆六四〝坦克人〞未死？狱友曝王维林真实姓名</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826888&from=gyyw">◆法国《观察家（L'Obs）》法轮功给炼功人以非凡的勇气和坚韧</a><br/>
 <a href="https://rawgit.com/onorm/up/master/oGate.htm?c826889&from=gyyw">◆邓小平下令毒杀十世班禅内幕 〝七万言书〞触怒毛泽东</a><br/>

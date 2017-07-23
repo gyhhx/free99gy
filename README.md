@@ -75,7 +75,7 @@
    <tr>
     <td align=center>
       下载安卓版，更快更方便  <br/> 
-    <b/>◆微信中如无响应，请复制以下链接地址到非国产浏览器中打开◆<br/><a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk">https://git.io/ogatea</a><br/>
+ <a href="http://t.cn/RKFCfWek">网门 安卓App</a><br/>
     </td>
   </tr>
   <tr>

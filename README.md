@@ -78,11 +78,4 @@
  <a href="http://t.cn/RKFCfWe">网门 安卓App</a><br/>
     </td>
   </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E.jpg" /></td>
- </tr> 
-   
- <tr>
-    <td align=center><img src="https://cloud.githubusercontent.com/assets/11880933/15631437/70d0a74e-259d-11e6-946f-6237b4b657bd.jpg"/></td>
-  </tr>
 </table>    

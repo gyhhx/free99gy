@@ -75,7 +75,7 @@
    <tr>
     <td align=center>
       下载安卓版，更快更方便  <br/> 
- <a href="http://t.cn/RKFCfWek">网门 安卓App</a><br/>
+ <a href="http://t.cn/RKFCfWe">网门 安卓App</a><br/>
     </td>
   </tr>
   <tr>

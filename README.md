@@ -82,6 +82,14 @@
       <td align=center>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
   </tr>
@@ -114,7 +122,7 @@
    <tr>
     <td align=center>
       下载安卓版，更快更方便  <br/> 
- <a href="http://t.cn/RKFCfWe">网门 安卓App</a><br/>
+ <a href="http://t.cn/R9P5YBM">网门 安卓App</a><br/>
     </td>
   </tr>
 </table>    

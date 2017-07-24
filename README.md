@@ -88,7 +88,7 @@
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事脉动的热点</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=center>

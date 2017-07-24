@@ -9,9 +9,6 @@
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
- <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
-  </tr>
 <tr>
 <td align=center>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c827207&from=gyyw">◆法媒：〝老领导〞干扰无效 王岐山留任 习家军全面崛起</a><br/>

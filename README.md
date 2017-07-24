@@ -129,7 +129,7 @@
   </tr>
    <tr>
     <td align=center>
-      下载安卓版，更快更方便  <br/> 
+      一键翻墙 安卓APP 永久免费 不限时长<br/> 
  <a href="http://t.cn/R9P5YBM">网门 安卓App</a><br/>
     </td>
   </tr>

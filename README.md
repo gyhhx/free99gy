@@ -66,7 +66,7 @@
     
  <tr>
     <td align=center>    
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
@@ -81,6 +81,14 @@
   <tr>
       <td align=center>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事脉动的热点</a><br/>
    </tr>
    <tr>
       <td align=center>

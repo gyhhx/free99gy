@@ -83,7 +83,10 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
     <tr>
-      <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao.jpg" /></td>
+  </tr>
+    <tr>
+      <td align=center>
       <a href="https://rawgit.com/onorm/up/master/oGate.htm?from=gygit1"><b>👉动态网址1</b><br/</a>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址2</b><br/</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit3"><b>👉动态网址3</b><br/></a>

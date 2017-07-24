@@ -83,7 +83,7 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
     <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
   </tr>
     <tr>
       <td align=center>

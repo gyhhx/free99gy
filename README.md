@@ -128,7 +128,7 @@
   </tr>
    <tr>
     <td align=center>
-      一键翻墙 安卓APP 永久免费 不限时长<br/> 
+      <b>一键翻墙 安卓APP 永久免费 不限时长</b><br/> 
  <a href="http://t.cn/RKFCMFI">网门 安卓App</a><br/>
     </td>
   </tr>

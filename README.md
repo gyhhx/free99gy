@@ -51,7 +51,7 @@
    </tr>
     <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827799&from=gityw">◆对孙政才案迟表态，预示中共无接班人？</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828011&from=gityw">◆石涛：安邦被迫出售华尔道夫 海航再受挫 习近平无商量</a><br/>
 </td>
   </tr>
  <tr>

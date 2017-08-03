@@ -31,7 +31,7 @@
    </tr>
  <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?828152&from=gityw">◆传中共公安部又有两名高官被调查</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828152&from=gityw">◆传中共公安部又有两名高官被调查</a><br/>
 </td>
    </tr>
  <tr>

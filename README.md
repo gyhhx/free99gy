@@ -54,6 +54,14 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c828316&from=gityw">◆北戴河会议启动 海军黄海实弹射击禁航4天</a><br/>
 </td>
   </tr>
+ <tr>
+<td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_958&from=gityw">◆从中共杀人运动逃出 地主家小姐的血泪记忆</a><br/>
+</td>
+   </tr> 
+    <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+  </tr>
     
  <tr>
     <td align=center>    

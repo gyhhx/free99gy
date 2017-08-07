@@ -61,12 +61,7 @@
    </tr> 
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
-  </tr>
-    
-    <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
-  </tr>
-    
+  </tr>   
  <tr>
     <td align=center>    
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gityw">◆今日点击◆全球华语最热脱口秀</a><br/>

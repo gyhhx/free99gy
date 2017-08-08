@@ -78,11 +78,11 @@
    </tr>
   <tr>
       <td align=center>
-<a href=https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gityw ">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href=https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gityw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gityw ">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gityw">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
       <td align=center>

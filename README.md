@@ -1,8 +1,4 @@
 <table>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
-  </tr>
-  <tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" />
   </td>
   </tr>
@@ -144,22 +140,6 @@
   <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?ogST.aspx&from=gitST"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
       </td>
-  </tr>
-  <tr>
-    <td align=center>
-◆推荐使用谷歌或火狐浏览器<br/>
-<a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、</a>
-<a href="https://google-chrome.cn.uptodown.com/windows">win版、</a>
-<a href="https://chrome.cn.uptodown.com/iphone">苹果版、</a>
-<a href="https://google-chrome.cn.uptodown.com/mac">Mac版</a><br/>
-◆国产浏览器干扰浏览，请卸载<br/>
-</td>
-  </tr>
-   <tr>
-    <td align=center>
-      <b>一键翻墙 安卓APP 永久免费 不限时长</b><br/> 
- <a href="http://t.cn/R9BovJf">网门 安卓App</a><br/>
-    </td>
   </tr>
    <tr>
     <td align=center><img src="https://cloud.githubusercontent.com/assets/11880933/15631437/70d0a74e-259d-11e6-946f-6237b4b657bd.jpg"/></td>

@@ -11,12 +11,12 @@
   </tr>
  <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829724&from=gityw">◆传习近平抢先粉碎〝北戴河政变〞曾庆红被摆上台</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829747&from=gityw">◆传王岐山约谈贾庆林 贾知江曾难保请求将功折罪</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829705&from=gityw">◆美军方高官访华与范长龙会谈 明确拒绝范一请求</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829763&from=gityw">◆北戴河会留悬念 19大前酝酿大动作？</a><br/>
 </td>
   </tr>
      <tr>

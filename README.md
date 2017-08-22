@@ -27,7 +27,7 @@
   </tr>
 <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829859&from=gityw">◆【禁闻】中共军队腐败惊人 评：作战或全军覆没</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c829859&from=gityw">◆【禁闻】中共军队腐败惊人 评：作战或全军覆没</a><br/>
 </td>
    </tr>
 <tr>

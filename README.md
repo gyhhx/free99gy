@@ -5,7 +5,7 @@
   <tr>
     <td align=left>
  <b>网门安卓版 APP下载 ●一键翻墙 ●不限时长</b><br/> 
- <a href="http://t.cn/RCxwYLP">👉<b>点我下载</a><br/>
+ <a href="http://t.cn/RCo3l9x">👉<b>点我下载</a><br/>
     </td>
     </tr>
   <tr>

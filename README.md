@@ -13,7 +13,7 @@
     </tr>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
-       <tr>
+    <tr>
 <td align=left>
 <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c830707&from=gityw">◆十九大前传闻乱纷 谁在合演“复仇记”？</a><br/>
 </td>
@@ -120,6 +120,10 @@
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址</b></a><br/>
       <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址 (微信中请点屏幕底部“访问原网页”）</b></a><br/>
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=gygitc"><b>👉动态网址</b></a><br/>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
     </td>
   </tr>
   <tr>

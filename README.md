@@ -119,7 +119,7 @@
       <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?from=gygit6"><b>👉动态网址</b></a><br/>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址</b></a><br/>
       <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址 (●微信中请点屏幕底部“访问原网页”）</b></a><br/>
-    <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=gygitc"><b>👉动态网址</b></a><br/>
+<a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=gygitc"><b>👉动态网址</b></a><br/>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
       <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=oGate"><b>👉动态网址</a><br/>
@@ -129,7 +129,7 @@
   <tr>
   <td align=center>
   <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c830699&from=gitST">每日三退声明精选</a><br/>
-      <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?ogST.aspx&from=gitST"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
+      <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?ogST.aspx&from=gitST"><b>▲▲▲君子不立危墙之下▲▲▲<br/></a>
       </td>
   </tr>
    <tr>

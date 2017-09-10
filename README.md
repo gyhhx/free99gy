@@ -16,27 +16,27 @@
    </tr>
   <tr>
 <td align=left>
-<a href="http://557e09840.ds.balticexperts.eu?c831624&from=gyeu">◆江泽民心腹贾廷安十九大出局 路透：非常清晰的信号</a><br/>
+<a href="http://55459840.ds.balticexperts.eu?c831624&from=gyeu">◆江泽民心腹贾廷安十九大出局 路透：非常清晰的信号</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="http://5570w9841.ds.balticexperts.eu?c831620&from=gyeu">◆《709纪事》之二：从酷刑说起（1）</a><br/>
+<a href="http://511841.ds.balticexperts.eu?c831620&from=gyeu">◆《709纪事》之二：从酷刑说起（1）</a><br/>
 </td>
   </tr>
    <tr>
 <td align=left>
-<a href="http://557109842.ds.balticexperts.eu?c831617&from=gyeu">◆美因朝核首点名中国银行 专家：一旦制裁将是致命打击</a><br/>
+<a href="http://551139842.ds.balticexperts.eu?c831617&from=gyeu">◆美因朝核首点名中国银行 专家：一旦制裁将是致命打击</a><br/>
 </td>
    </tr>
    <tr>
 <td align=left>
-<a href="http://575709843.ds.balticexperts.eu?c831599&from=gyeu">◆十九大削山头 中共军方人事空前变动（上）</a><br/>
+<a href="http://511409843.ds.balticexperts.eu?c831599&from=gyeu">◆十九大削山头 中共军方人事空前变动（上）</a><br/>
 </td>
  </tr>
    <tr>
 <td align=left>
-<a href="http://5257094.ds.balticexperts.eu?c831595&from=gyeu">◆周强陷入十九大代表罗生门 又有说法</a><br/>
+<a href="http://51157094.ds.balticexperts.eu?c831595&from=gyeu">◆周强陷入十九大代表罗生门 又有说法</a><br/>
 </td>
    </tr>
     <tr>
@@ -46,7 +46,7 @@
    </tr>
     <tr>
 <td align=left>
-<a href="http://55744846.ds.balticexperts.eu?c831573&from=gyeu">◆王岐山留任事关全局 北京当局已无路可退？</a><br/>
+<a href="http://552244846.ds.balticexperts.eu?c831573&from=gyeu">◆王岐山留任事关全局 北京当局已无路可退？</a><br/>
 </td>
    </tr>
  <tr>
@@ -56,22 +56,22 @@
    </tr> 
    <tr>
 <td align=left>
-<a href="http://557098210.ds.balticexperts.eu?c831565&from=gyeu">◆江泽民犯忌的几件事 令其变脸火冒三丈</a><br/>
+<a href="http://5570952340.ds.balticexperts.eu?c831565&from=gyeu">◆江泽民犯忌的几件事 令其变脸火冒三丈</a><br/>
  </td>
  </tr>
 <tr>
 <td align=left>
-<a href="http://5570451840.ds.balticexperts.eu?c831544&from=gyeu">◆中纪委突袭江绵恒联通〝管家〞 一间密室让其乱方寸</a><br/>
+<a href="http://5570531440.ds.balticexperts.eu?c831544&from=gyeu">◆中纪委突袭江绵恒联通〝管家〞 一间密室让其乱方寸</a><br/>
 </td>
    </tr>
    <tr>
 <td align=left>
-<a href="http://5516720.ds.balticexperts.eu?c816833_2_1069&from=gyeu">◆日军侵华谁下令不抵抗？张学良承认蒋介石替他背黑锅</a><br/>
+<a href="http://553220.ds.balticexperts.eu?c816833_2_1069&from=gyeu">◆日军侵华谁下令不抵抗？张学良承认蒋介石替他背黑锅</a><br/>
 </td>
   </tr> 
     <tr>
 <td align=left>
-<a href="http://55746345.ds.balticexperts.eu?c831548&from=gyeu">◆石涛：王岐山露脸 习近平即将〝大开杀戒〞？</a><br/>
+<a href="http://557325345.ds.balticexperts.eu?c831548&from=gyeu">◆石涛：王岐山露脸 习近平即将〝大开杀戒〞？</a><br/>
 </td>
    </tr>
     <tr>
@@ -79,21 +79,21 @@
   </tr>
  <tr>
    <td align=left> 
-<a href="http://5573453240.ds.balticexperts.eu?c816850&from=gyeu">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="http://534312240.ds.balticexperts.eu?c816850&from=gyeu">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
    <td align=left>
-<a href="http://5579830.ds.balticexperts.eu?c816857&from=gyeu">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="http://5212830.ds.balticexperts.eu?c816857&from=gyeu">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
   <td align=left>
-<a href="http://55715780.ds.balticexperts.eu?c816860&from=gyeu">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="http://51125780.ds.balticexperts.eu?c816860&from=gyeu">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="http://51709840.ds.balticexperts.eu?c816855&from=gyeu">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="http://51109740.ds.balticexperts.eu?c816855&from=gyeu">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=left>
@@ -101,35 +101,35 @@
    </tr>
    <tr>
      <td align=left>
-<a href="http://5124709340.ds.balticexperts.eu?c816852&from=gyeu">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="http://5187340.ds.balticexperts.eu?c816852&from=gyeu">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="http://62309810.ds.balticexperts.eu?c816694&from=gyeu">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="http://6236710.ds.balticexperts.eu?c816694&from=gyeu">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="http://5235279840.ds.balticexperts.eu?c816650&from=gyeu">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="http://523536840.ds.balticexperts.eu?c816650&from=gyeu">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
   </tr>
     <tr>
       <td align=center>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit"><b>👉动态网址</a><br/>
       <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?from=gygit"><b>👉动态网址</b></a><br/>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit"><b>👉动态网址</b></a><br/>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit"><b>👉动态网址 (●微信中请点屏幕底部“访问原网页”）</b></a><br/>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit"><b>👉动态网址</b></a><br/>
 <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=gygit"><b>👉动态网址</b></a><br/>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=gygit"><b>👉动态网址</a><br/>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gygit"><b>👉动态网址</a><br/>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit"><b>👉动态网址</a><br/>
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit"><b>👉动态网址</a><br/>
     </td>
   </tr>
   <tr>
   <td align=center>
-  <a href="http://50708490.ds.balticexperts.eu?c830699&from=STgyeu">每日三退声明精选</a><br/>
-      <a href="http://58708409.ds.balticexperts.eu?ogST.aspx&from=STgyeu"><b>▲▲▲君子不立危墙之下▲▲▲<br/></a>
+  <a href="http://50390.ds.balticexperts.eu?c830699&from=STgyeu">每日三退声明精选</a><br/>
+      <a href="http://5538409.ds.balticexperts.eu?ogST.aspx&from=STgyeu"><b>▲▲▲君子不立危墙之下▲▲▲<br/></a>
       </td>
   </tr>
    <tr>

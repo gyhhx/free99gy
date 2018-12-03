@@ -2,9 +2,6 @@
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%8E%A8%E5%B9%BF%E5%9B%BE-12.jpg" /></td>
   </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
-  </tr>
    <tr>
 <td align=left>
 <a href="http://puduzs.zg.irka.io/oo.aspx?name=c994215&key=l9gs164o&from=gy">◆贸战暂停火 川普安内攘外 助习再看清中共</a><br/>

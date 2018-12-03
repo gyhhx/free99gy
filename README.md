@@ -130,10 +130,6 @@
 <a href="http://h2g4r43d.zg.irka.io/oo.aspx?name=c816650&key=l9gs164o&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
    <tr>
-  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%8E%A8%E5%B9%BF%E5%9B%BE-43.jpg" />
-  </td>
-  </tr>
-   <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版(2018年09月）【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
  <a href="https://share.weiyun.com/5II1RNH">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>

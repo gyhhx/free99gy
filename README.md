@@ -93,7 +93,7 @@
 <a href="http://h623ehd.zg.irka.io/oo.aspx?name=c841287&key=l9gs164o&from=gy">◆动◆态◆网◆新◆闻◆</a><br/></td>
   </tr>
     <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20180612%20(61).jpg" /></td>
   </tr>
   <tr>
    <td align=left>

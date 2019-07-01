@@ -2,8 +2,8 @@
 ♡♡♡微信中无法打开的地区，请将本站网址 https://git.io/gy （或 http://tinyurl.com/y3glkegv） 输入到浏览器中打开。 
 
 <table>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate2.jpg" /></td>
+   <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20190701.jpg" /></td>
   </tr>
   <tr>
 <td align=left>
@@ -204,7 +204,7 @@
 <a href="https://xvery.li/oo.aspx?name=c1047071&key=lvvdiyawanfwimxk&from=gy">◆金言：平壤——红朝官员不平之壤</a><br/></td>
   </tr>
    <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20190701.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB.jpg" /></td>
   </tr>
    <tr>
    <td align=center> 
@@ -255,9 +255,6 @@
       ■■■微信中请先点击右上角“...” 或 “三”　选择“在浏览器中打开”■■■<b><br/>
     </td>
   </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /> </td>
-</tr>
   <tr>  
   <td align=center>
   <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c894205&key=ofejcfaxcltk&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>

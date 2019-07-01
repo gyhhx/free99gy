@@ -204,7 +204,7 @@
 <a href="https://xvery.li/oo.aspx?name=c1047071&key=lvvdiyawanfwimxk&from=gy">◆金言：平壤——红朝官员不平之壤</a><br/></td>
   </tr>
    <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg" /></td>
   </tr>
    <tr>
    <td align=center> 

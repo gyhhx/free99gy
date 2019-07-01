@@ -3,7 +3,7 @@
 
 <table>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate2.jpg" /></td>
   </tr>
   <tr>
 <td align=left>
@@ -202,7 +202,10 @@
   <tr>
 <td align=left>
 <a href="https://xvery.li/oo.aspx?name=c1047071&key=lvvdiyawanfwimxk&from=gy">◆金言：平壤——红朝官员不平之壤</a><br/></td>
-  </tr> 
+  </tr>
+   <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20190701.jpg" /></td>
+  </tr>
    <tr>
    <td align=center> 
 <a href="https://xvery.li/oo.aspx?name=c816850&key=lvvdiyawanfwimxk&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>

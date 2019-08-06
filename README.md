@@ -7,6 +7,98 @@
   </tr>
    <tr>
 <td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059588&key=iulvfagzrxnrcwra&from=gy">◆【新闻看点】人民币破7 中国经济面临3挑战</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059579&key=iulvfagzrxnrcwra&from=gy">◆柯文哲：GDP与人权不可分 反送中恐蔓延广州</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059578&key=iulvfagzrxnrcwra&from=gy">◆香港民意沸腾 专家：对中共抱幻想的人该醒了</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059657&key=iulvfagzrxnrcwra&from=gy">◆人民币破7 美政府将中共列入货币操纵国</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059577&key=iulvfagzrxnrcwra&from=gy">◆百名中国人存款7.8万亿？学者转发引关注</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059431&key=iulvfagzrxnrcwra&from=gy">◆【更新】逾15万港人8.5集会 警出动装甲车</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059602&key=iulvfagzrxnrcwra&from=gy">◆【新闻看点】多少华裔科学家被卷入陷阱？</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059560&key=iulvfagzrxnrcwra&from=gy">◆陈破空：香港大罢工 习近平仍然看不懂？梁振英高举百万港币 自曝汉奸身份</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059392&key=iulvfagzrxnrcwra&from=gy">◆北戴河会议有异 胡春华被替换 郭声琨在深圳加班？（视频）</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/05/a102638150.html&key=iulvfagzrxnrcwra&from=gy">◆8.5三罢200航班取消 多地冲突 白衣暴徒砍人</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.secretchina.com/news/gb/2019/08/06/902765.html&key=iulvfagzrxnrcwra&from=gy">◆港人丢五星旗入海震动北京 意外揭背后“秘密”</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/05/a102638258.html&key=iulvfagzrxnrcwra&from=gy">◆俄州枪击案惊悚细节:枪手热爱社会主义 目标是亲妹</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.secretchina.com/news/gb/2019/08/06/902803.html&key=iulvfagzrxnrcwra&from=gy">◆李鹏漂亮孙女曝光 红色权贵家族奢侈生活引关注</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/05/a102638206.html&key=iulvfagzrxnrcwra&from=gy">◆香港黑帮持刀砍伤示威者 血流满地伤见骨</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.secretchina.com/news/gb/2019/08/06/902361.html&key=iulvfagzrxnrcwra&from=gy">◆两袖清风？周恩来“廉洁”教育基地的真相</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/05/a102638115.html&key=iulvfagzrxnrcwra&from=gy">◆【今日点击】人民币兑美元破7 金融崩盘 港币将消失？</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059541&key=iulvfagzrxnrcwra&from=gy">◆港人示威1招打痛中共 原来北京特在意！高官1行动露馅了</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059561&key=iulvfagzrxnrcwra&from=gy">◆反送中 中共最怕一幕出现 中国大妈怒斥港警网络爆红 香港大三罢陆空交通瘫痪</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059559&key=iulvfagzrxnrcwra&from=gy">◆北戴河开会 收到七宗罪 香港大罢工 党国血旗扔大海 梁振英悬赏100万效忠 被雷！</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059661&key=iulvfagzrxnrcwra&from=gy">◆【微视频】 中共外交部“呵呵”和央视破口大骂</a><br/>
+</td>
+</tr> 
+<tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1059371&key=iulvfagzrxnrcwra&from=gy">◆习近平将成为中共红朝末代“君主”？</a><br/>
+</td>       
+</tr> 
+
+   <tr>
+<td align=left>
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058750&key=iulvfagzrxnrcwra&from=gy">◆驻港部队对香港戒严？中共外交部急表白</a><br/></td>
   </tr>
   <tr>
@@ -91,129 +183,6 @@
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058981&key=iulvfagzrxnrcwra&from=gy">◆刘细良：香港暴动罪普遍化——军警政权下法治崩溃</a><br/>
 </td>
 </tr> 
-<tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.secretchina.com/news/gb/2019/08/04/902585.html&key=iulvfagzrxnrcwra&from=gy">◆北戴河会议秘密开启 传安保“史上最严”习有麻烦？</a><br/>
-</td>       
-</tr> 
-
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058456&key=iulvfagzrxnrcwra&from=gy">◆美国新关税上路 外媒：两类产品最受冲击</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058271&key=iulvfagzrxnrcwra&from=gy">◆【更新】四万公务员集会 逼爆遮打花园</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058469&key=iulvfagzrxnrcwra&from=gy">◆被问及与星爷称呼不同 刘德华的回答笑翻全场</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058279&key=iulvfagzrxnrcwra&from=gy">◆贸易战再升级 为何对华为是个坏消息</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058411&key=iulvfagzrxnrcwra&from=gy">◆重庆保时捷女司机违规并打人 丈夫是公安</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058461&key=iulvfagzrxnrcwra&from=gy">◆周晓辉：川普再加征关税 戳破北京危险游戏</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058460&key=iulvfagzrxnrcwra&from=gy">◆颜丹：猪年画猪的女孩为何会被拘捕？</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/08/02/n3078437.html&key=iulvfagzrxnrcwra&from=gy">◆【现场直击】“反送中“遍地开花 香港旺角8.3集会及大游行</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058587&key=iulvfagzrxnrcwra&from=gy">◆【快讯】美国共和党全国委员会通过决议 强烈谴责中共强摘器官</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058558&key=iulvfagzrxnrcwra&from=gy">◆北戴河风光虽美 习近平却异常难过</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/02/a102636178.html&key=iulvfagzrxnrcwra&from=gy">◆川普关税空袭北京 王毅仓促回应:不正确</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/02/a102636216.html&key=iulvfagzrxnrcwra&from=gy">◆8.5全港大三罢 电台主持人与航空员工群起响应</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/03/a102636408.html&key=iulvfagzrxnrcwra&from=gy">◆王沪宁煽情镇压香港？央视5千字长文藏杀机</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058466&key=iulvfagzrxnrcwra&from=gy">◆文昭：川普对3000亿关税出手中共“呵呵”栽了;！？8月香港戒严！</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058465&key=iulvfagzrxnrcwra&from=gy">◆揭密：江泽民生平最忌讳的两件大事</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058580&key=iulvfagzrxnrcwra&from=gy">◆林保华 ：七月中央政治局会议在掩盖什么？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058545&key=iulvfagzrxnrcwra&from=gy">◆川普新关税左右中南海博弈 北京下狠手刺激中国经济 失业潮保守数字达几千万</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058549&key=iulvfagzrxnrcwra&from=gy">◆明居正：颜色革命?! 香港戒严?! 香港正在写历史! </a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058443&key=iulvfagzrxnrcwra&from=gy">◆中共外交部反驳指北京将派共军在港戒严属谣言</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/02/a102635951.html&key=iulvfagzrxnrcwra&from=gy">◆习近平“后事”安排：接替人员名单曝光</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/02/a102636201.html&key=iulvfagzrxnrcwra&from=gy">◆传郭声琨秘赴深圳 暗撑港警抓捕抗议人士</a><br/>
-</td>       
-</tr> 
-
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058044&key=iulvfagzrxnrcwra&from=gy">◆川普：9月1日对华3000亿商品加税10%</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058033&key=iulvfagzrxnrcwra&from=gy">◆中共驻港部队发视频 自曝“太恶霸”</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058079&key=iulvfagzrxnrcwra&from=gy">◆微信在美国封锁大量中文新闻网站 包括阿波罗新闻网</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058074&key=iulvfagzrxnrcwra&from=gy">◆德媒：香港局势对中国今后命运有决定性影响</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1057957&key=iulvfagzrxnrcwra&from=gy">◆中共限台令 外媒：再次误判 效果适得其反</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1058032&key=iulvfagzrxnrcwra&from=gy">◆【新闻看点】北京以拖待变？川普3000亿来了</a><br/>
-</td>
-   </tr>
    <tr>
    <td align=center> 
 <a href="https://xvery.li/oo.aspx?name=c816850&key=lvvdiyawanfwimxk&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>

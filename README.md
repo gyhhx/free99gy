@@ -7,8 +7,9 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c922850_364_1&key=iulvfagzrxnrcwra&from=gy">◆香港加油 8.18特別轉推：香港反送中關鍵時刻，是歷史重演，還是歷史拐點？全球正義力量共同發聲</a><br/></td>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c922850_364_1&key=iulvfagzrxnrcwra&from=gy">◆香港加油 特別轉推：香港反送中關鍵時刻，是歷史重演，還是歷史拐點？全球正義力量共同發聲</a><br/></td>
   </tr>
+   README.md
    <tr>
 <td align=left>
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064141&key=iulvfagzrxnrcwra&from=gy">◆【直播】8.17反送中两大游行 教师+光复红土</a><br/></td>
@@ -77,80 +78,6 @@
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064224&key=iulvfagzrxnrcwra&from=gy">◆香港教师走上街头支持抗议人士</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064329&key=iulvfagzrxnrcwra&from=gy">◆专访黄之锋：天安门事件有可能在香港重演 我并不主张香港独立</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064331&key=iulvfagzrxnrcwra&from=gy">◆取消台湾演出大陆歌手：被要求删撑香港警察言论主办场地：考虑安全问题</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064096&key=iulvfagzrxnrcwra&from=gy">◆分析：王沪宁鼓动14亿人 正在等习近平出事</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.epochtimes.com/gb/19/8/17/n11459914.htm&key=iulvfagzrxnrcwra&from=gy">◆中共武警集结 台立委吁习近平“别犯致命错误”</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.ntdtv.com/gb/2019/08/17/a102646292.html&key=iulvfagzrxnrcwra&from=gy">◆美售台F-16V战机释强烈信号 学者:北京报复手段有限</a><br/>
-</td>       
-</tr> 
-
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063921&key=iulvfagzrxnrcwra&from=gy">◆【新闻看点】警告香港勿重演六四 美有何王牌？</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063923&key=iulvfagzrxnrcwra&from=gy">◆颜丹：“厉害的国”送榨菜可笑在哪儿？</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063935&key=iulvfagzrxnrcwra&from=gy">◆【新闻看点】卧底阴霾下 港人现场捉公安细节</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063663&key=iulvfagzrxnrcwra&from=gy">◆一文看懂中共对香港反送中的造假宣传</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063904&key=iulvfagzrxnrcwra&from=gy">◆胡锡进：付国豪没有记者证 媒体人：军情人员身份呼之欲出</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063939&key=iulvfagzrxnrcwra&from=gy">◆周晓辉：川普连就香港问题放话 北京可听懂？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063749&key=iulvfagzrxnrcwra&from=gy">◆成龙争当中共“护旗手”被网民讥讽</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/08/16/n3112229.html&key=iulvfagzrxnrcwra&from=gy">◆就“反送中”表态 李嘉诚广告暗藏玄机？网民有惊人发现</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063922&key=iulvfagzrxnrcwra&from=gy">◆组图：8.17教师大游行宣传图 为良知发声</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/08/16/n3111629.html&key=iulvfagzrxnrcwra&from=gy">◆川普推推推：中共接受贸易协议 换取派兵镇压香港反送中</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063819&key=iulvfagzrxnrcwra&from=gy">◆美共和党委员会谴中共强摘器官决议全文</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1063821&key=iulvfagzrxnrcwra&from=gy">◆陈破空：香港面临摊牌？两人逼习近平动武 川普劝和 难以下手的关键</a><br/></td>
- </tr>
    <tr>
    <td align=center> 
 <a href="https://xvery.li/oo.aspx?name=c816850&key=lvvdiyawanfwimxk&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>

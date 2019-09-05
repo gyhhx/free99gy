@@ -1,6 +1,10 @@
 
+<tr>
 ♡♡♡微信中无法打开的地区，请将本站网址 https://git.io/gy （或 http://tinyurl.com/y3glkegv） 输入到浏览器中打开。 
+</tr>
+<tr>
 ♡♡♡请及时收藏本站以免失连♡♡♡
+   </tr>
 <table>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>

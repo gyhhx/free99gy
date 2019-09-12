@@ -170,55 +170,6 @@
 <a href="https://tru28th.xwood.fun/oo.aspx?name=c1072649&key=nqynnipsxfbxcbni&from=gy">◆马云被退休？放弃了肉体留下了灵魂？阿里巴巴的央企太子党背景显赫</a><br/></td>
   </tr>
   <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072702&key=nqynnipsxfbxcbni&from=gy">◆林郑月娥：绝不认同美国国会介入香港内政</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072658&key=nqynnipsxfbxcbni&from=gy">◆《石涛聚焦》美国会复会 香港人权法通过在即 冻结港官财产 拒绝入境 终止“香港特殊关系法”都有可能</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072641&key=nqynnipsxfbxcbni&from=gy">◆为什么香港反送中示威中没出现“良心警察”变节?</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072679&key=nqynnipsxfbxcbni&from=gy">◆教师节来临 大陆高校教师被禁言软禁频发</a><br/>
-</td>       
-</tr> 
-   <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072285&key=nqynnipsxfbxcbni&from=gy">◆10月重启会谈 美方透露中方电话内容</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072204&key=nqynnipsxfbxcbni&from=gy">◆黄之锋何韵诗受邀下周出席美国国会听证会</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072317&key=nqynnipsxfbxcbni&from=gy">◆党媒渲染学生雷雨天收红旗 恶评如潮 急删帖</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072187&key=nqynnipsxfbxcbni&from=gy">◆地铁站任意丢催泪弹 “港警”说普通话露馅</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072203&key=nqynnipsxfbxcbni&from=gy">◆程晓容：香港人权民主法案对中共意味着什么</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c1072350&key=nqynnipsxfbxcbni&from=gy">◆川普对付中共和里根解体苏联 策略惊人相似</a><br/>
-</td>
-   </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
-  </tr>
-
-
-  <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
  <tr>

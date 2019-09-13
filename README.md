@@ -149,6 +149,9 @@
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1073451&key=nqynnipsxfbxcbni&from=gy">关注亚太安全 加拿大军舰穿越台海</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1073132&key=nqynnipsxfbxcbni&from=gy">如鲠在喉！中共为何至今不敢血洗香港</a></td></tr>
  <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+  </tr>
+ <tr>
    <td align=center> 
 <a href="https://tru28th.xwood.fun/oo.aspx?name=c816850&key=nqynnipsxfbxcbni&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>

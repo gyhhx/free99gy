@@ -8,107 +8,106 @@
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
   </tr>
- 
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075478&key=nqynnipsxfbxcbni&from=gy">【禁闻】9月18日维权动态</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075734&key=nqynnipsxfbxcbni&from=gy">罗斯：中国不再是世界上最便宜制造地</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075422&key=nqynnipsxfbxcbni&from=gy">丧失良知遭恶报</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1073691&key=nqynnipsxfbxcbni&from=gy">中共继续放软 新购美国大豆猪肉取消关税</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075756&key=nqynnipsxfbxcbni&from=gy">国庆安保警戒 香港成重点之一</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075657&key=nqynnipsxfbxcbni&from=gy">嚣张跋扈！大陆演员刘露已被公司解约</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075739&key=nqynnipsxfbxcbni&from=gy">美联储减息0.25厘 货币政策后向迷离</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075712&key=nqynnipsxfbxcbni&from=gy">阻红色渗透 台跨党派合推境外势力透明法</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075449&key=nqynnipsxfbxcbni&from=gy">《石涛聚焦》听证会纪实：中共国更加法西斯 掠夺性侵占一切 十一网路大封锁 胡锡进不满</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075817&key=nqynnipsxfbxcbni&from=gy">遭3千人围堵 江泽民与情妇撞破头血流满面溜走</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075666&key=nqynnipsxfbxcbni&from=gy">大陆中小房企收益降四成 “卖子”求生</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075752&key=nqynnipsxfbxcbni&from=gy">21世纪的古拉格真相（3）</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1042363&key=nqynnipsxfbxcbni&from=gy">共产暴政录：苏联和中共策划的三区叛乱</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1013792&key=nqynnipsxfbxcbni&from=gy">高官自爆中南海惊人秘密 超乎中外99%的人想象力 中共让步底线就是…</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075429&key=nqynnipsxfbxcbni&from=gy">川普新国安顾问是传统鹰派 反对对中共绥靖</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075396&key=nqynnipsxfbxcbni&from=gy">英国顾问怒呛刘欣后辞职 央视海外连碰壁</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075792&key=nqynnipsxfbxcbni&from=gy">陆综拒付韩国版权费 MBC起诉中国制作公司</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074172&key=nqynnipsxfbxcbni&from=gy">央视两名美女主播的尴尬和潜因</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075740&key=nqynnipsxfbxcbni&from=gy">沙特为保障出口而寻求进口石油</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075832&key=nqynnipsxfbxcbni&from=gy">程晓容：香港三项活动取消 中共十一添堵</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075747&key=nqynnipsxfbxcbni&from=gy">香港多处举行乌克兰抗争纪录片放映活动</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075421&key=nqynnipsxfbxcbni&from=gy">感动！黄之锋、何韵诗、张崑阳美国国会发言！称年轻人准备好以死抗争。反送中运动，港人吁美国通过《香港人权与民主法案》</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075438&key=nqynnipsxfbxcbni&from=gy">专家称所罗门群岛与台断交是中共特意要破坏美国与西方国家利益</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075452&key=nqynnipsxfbxcbni&from=gy">走资忧虑升级 经销商：大量黄金正流出香港</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075479&key=nqynnipsxfbxcbni&from=gy">【禁闻】中国式监控全球化 小心就在你身边</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075440&key=nqynnipsxfbxcbni&from=gy">新规：中国记者须通过习思想考试</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075168&key=nqynnipsxfbxcbni&from=gy">太子党叶选平故去 叶家五十多人近况曝光</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075420&key=nqynnipsxfbxcbni&from=gy">张林：香港与东帝汶</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075393&key=nqynnipsxfbxcbni&from=gy">北京82岁法轮功学员马秀英遭冤判 被劫入狱</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075426&key=nqynnipsxfbxcbni&from=gy">联准会宣布降息一码 盼助经济持续成长</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075432&key=nqynnipsxfbxcbni&from=gy">白宫解密文件披露美国对台军售关键理由</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075416&key=nqynnipsxfbxcbni&from=gy">黑石CEO：中国经济奇迹是以牺牲美国和发达国家利益为代价</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075443&key=nqynnipsxfbxcbni&from=gy">猪肉短缺价格飙升 中共政策被批罔顾民生</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075187&key=nqynnipsxfbxcbni&from=gy">李嘉诚遭党媒齐轰真相曝光</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075026&key=nqynnipsxfbxcbni&from=gy">周强未参加中共人大会议 引热议</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075188&key=nqynnipsxfbxcbni&from=gy">黄之锋：香港正迈向“一国一制” 坦克进城并非不可能</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075441&key=nqynnipsxfbxcbni&from=gy">五家人权组织呼吁联合国秘书长就新疆问题谴责中共</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075415&key=nqynnipsxfbxcbni&from=gy">美国关税制裁发威 中国上市企业业绩受创</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075769&key=nqynnipsxfbxcbni&from=gy">徇私枉法及受贿 广西一前反贪局长被双开</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075417&key=nqynnipsxfbxcbni&from=gy">中国经济成长放缓 习近平喊话：一定要把制造业搞上去</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075729&key=nqynnipsxfbxcbni&from=gy">美中贸易磋商今开始 农产品芬太尼是焦点</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075721&key=nqynnipsxfbxcbni&from=gy">川农民工干活4个月 讨薪历经近2年无果</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075603&key=nqynnipsxfbxcbni&from=gy">猪的逼迫受不了  习近平只有求助川普</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075570&key=nqynnipsxfbxcbni&from=gy">这5种工作 即使经济衰退 仍是金饭碗</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075456&key=nqynnipsxfbxcbni&from=gy">瓜伊多获任委国临时总统 第一副总统获释</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075826&key=nqynnipsxfbxcbni&from=gy">北京清算工商大佬的时候到了</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075711&key=nqynnipsxfbxcbni&from=gy">德不同族裔代表声援香港 揭露中共迫害</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075189&key=nqynnipsxfbxcbni&from=gy">【微博精粹】欧阳夏丹曝港铁“出轨” 反被爆她上周永康床万睡往事</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075831&key=nqynnipsxfbxcbni&from=gy">张奂才：北京地铁惊魂</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075411&key=nqynnipsxfbxcbni&from=gy">《石涛聚焦》听证会纪实：习近平拒绝西方宪政 港人因责任与尊严而战</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075311&key=nqynnipsxfbxcbni&from=gy">外媒曝 在中国大陆的朝鲜女难民沦为网络“性奴”</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075727&key=nqynnipsxfbxcbni&from=gy">台湾与美业者国会山签约将采购37亿美元大豆玉米等农产品</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075833&key=nqynnipsxfbxcbni&from=gy">觅真：阴霾散去明珠会更加灿烂辉煌！</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075744&key=nqynnipsxfbxcbni&from=gy">港生连侬墙遭破坏 台陆委会：不容暴力霸凌</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075643&key=nqynnipsxfbxcbni&from=gy">金融中心地位岌岌可危 大量黄金正流出香港</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075653&key=nqynnipsxfbxcbni&from=gy">友邦反目？朝鲜非法捕鱼船攻击俄军酿3伤</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075622&key=nqynnipsxfbxcbni&from=gy">中共黑手再介入！香港名导请辞金马评审主席</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075742&key=nqynnipsxfbxcbni&from=gy">嘉信理财︰联储减息非灵丹妙药 市况风险仍存</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075611&key=nqynnipsxfbxcbni&from=gy">猪肉太贵了 上海部分餐厅停售猪肉菜品</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075403&key=nqynnipsxfbxcbni&from=gy">要「一带一路」写入安理会决议 传中共威胁动用否决权</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075394&key=nqynnipsxfbxcbni&from=gy">经济数据全面下滑 中共被迫政策大转弯！？</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075719&key=nqynnipsxfbxcbni&from=gy">13万人露宿街头 川普访问加州要答案</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075674&key=nqynnipsxfbxcbni&from=gy">支持美国制造业 苹果奖励供应商康宁2.5亿美元</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075572&key=nqynnipsxfbxcbni&from=gy">10吨炸弹之母炸响 极端组织被炸傻了(多图）</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1046286&key=nqynnipsxfbxcbni&from=gy">美祭新禁令 重击中共超级计算机和CPU芯片业</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c857652&key=nqynnipsxfbxcbni&from=gy">大梦恐破碎 港媒：他是习近平唯一接班人 </a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1062301&key=nqynnipsxfbxcbni&from=gy">中共担心撑不到明年 郭文贵爆北戴河内幕</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075331&key=nqynnipsxfbxcbni&from=gy">吴川市民包围市府抗议养老金不发</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c977758&key=nqynnipsxfbxcbni&from=gy">《笑谈风云》第二集 飞来横祸（1）</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075345&key=nqynnipsxfbxcbni&from=gy">香港浸大学生会再抗议 要求与校长直接对话</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075374&key=nqynnipsxfbxcbni&from=gy">中国光刻技术与国外差距15-20年</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075401&key=nqynnipsxfbxcbni&from=gy">外企重度依赖中国尝苦果 4到6月净利润年减近20％</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075434&key=nqynnipsxfbxcbni&from=gy">斯诺登因出版回忆录被美国司法部起诉</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075423&key=nqynnipsxfbxcbni&from=gy">王友群：港府和警察应该倾听李嘉诚的建议</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075329&key=nqynnipsxfbxcbni&from=gy">汪浩：郭台铭正在悄悄撤离中国 被李嘉诚当阶级敌人吓到？</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075327&key=nqynnipsxfbxcbni&from=gy">明居正：中共震摄性杀人！批斗李嘉诚分化港人</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075229&key=nqynnipsxfbxcbni&from=gy">川普深知中共希望换总统 重磅!美军国军成抗共盟军 白宫新政反击“红色巨无霸”</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075472&key=nqynnipsxfbxcbni&from=gy">20年 吉林省舒兰法轮功学员遭迫害综述</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075455&key=nqynnipsxfbxcbni&from=gy">美严审签证 密大三中国留学生被行政审查</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075094&key=nqynnipsxfbxcbni&from=gy">山大微博深夜发帖招嫖 中共撇清急删</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074927&key=nqynnipsxfbxcbni&from=gy">忽发习5年前讲话啥信号？网格化监视不放过夫妻吵架 传李鹏托梦李小琳求超度视频流出</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075363&key=nqynnipsxfbxcbni&from=gy">何君尧爱驹出赛 网民发动围堵 马会取消赛事</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075439&key=nqynnipsxfbxcbni&from=gy">中断11年 美国、白俄罗斯拟恢复大使级外交关系</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075307&key=nqynnipsxfbxcbni&from=gy">银行的铁饭碗漏了！中国金融业生变</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c929114&key=nqynnipsxfbxcbni&from=gy">新疆火焰山景区气温飙升 地表高达72摄氏度</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075017&key=nqynnipsxfbxcbni&from=gy">【热点互动】香港富豪成中共下一打击目标？</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075408&key=nqynnipsxfbxcbni&from=gy">王友群：港府和警察应该倾听李嘉诚的建议</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075333&key=nqynnipsxfbxcbni&from=gy">中国国航空中发动机失火 急返华盛顿</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c897364&key=nqynnipsxfbxcbni&from=gy">新疆前法官黄云敏被送“法律援助中心”</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075298&key=nqynnipsxfbxcbni&from=gy">副部级谈判前突换人 刘鹤副手廖岷率团赴美</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075105&key=nqynnipsxfbxcbni&from=gy">叶剑英长子叶选平病逝 “政治豪族”第二代凋零</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074923&key=nqynnipsxfbxcbni&from=gy">301医院泄密中共领导人延寿150岁工程 网络疯传！炸锅了！</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074872&key=nqynnipsxfbxcbni&from=gy">想不到这个女人敢在毛泽东遗体前和江青大打出手</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075077&key=nqynnipsxfbxcbni&from=gy">叶选平逝世 家族曾因同情改革派被边缘化</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075093&key=nqynnipsxfbxcbni&from=gy">李嘉诚受孤立 资企急划清界限</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075299&key=nqynnipsxfbxcbni&from=gy">马云卸任热度不减 网民感慨“杀猪行动”</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075236&key=nqynnipsxfbxcbni&from=gy">社保开始爆雷了？广东吴川民众围市政府抗议「还我养老金！」</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075019&key=nqynnipsxfbxcbni&from=gy">叶剑英长子叶选平过世 中共太子党再少一人</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075372&key=nqynnipsxfbxcbni&from=gy">补税130亿欧元！苹果头有点大</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075384&key=nqynnipsxfbxcbni&from=gy">国航华盛顿飞北京班机引擎起火 被迫折返</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075405&key=nqynnipsxfbxcbni&from=gy">王英强声明：全家被监控 如有意外政府负责</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075451&key=nqynnipsxfbxcbni&from=gy">全球家户财富缩水 2008年金融危机以来首见</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075370&key=nqynnipsxfbxcbni&from=gy">台湾邦交国致函联合国秘书长支持台湾</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1073656&key=nqynnipsxfbxcbni&from=gy">郭声琨政法委罕见痛批李嘉诚 李回应来了 港共180度大转弯要共产？</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075123&key=nqynnipsxfbxcbni&from=gy">向各驻港领事发公开信 星岛老板何柱国：游说人权民主法案荒谬 撑暴力活动如撑港独</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075413&key=nqynnipsxfbxcbni&from=gy">华尔街「新债王」：Fed料宽松 不建议买入美债、黄金</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075184&key=nqynnipsxfbxcbni&from=gy">反击千人计划行动升级 美首度逮捕一中共官员</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075326&key=nqynnipsxfbxcbni&from=gy">香港抗争者警告自由世界：共产党的影响力已经来到你家门口</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075346&key=nqynnipsxfbxcbni&from=gy">【精彩推荐】白宫解密对台军售 /美逮捕中共官员</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075350&key=nqynnipsxfbxcbni&from=gy">播放香港反送中歌曲 广州网民遭刑拘</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075352&key=nqynnipsxfbxcbni&from=gy">程晓容: BBC访谈 陈方安生吁中国拥抱普世价值(视频)</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074860&key=nqynnipsxfbxcbni&from=gy">一条广告泄露中共大秘密？大陆微信圈疯传</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074811&key=nqynnipsxfbxcbni&from=gy">【直播回放】美国会就香港局势举行听证会</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075016&key=nqynnipsxfbxcbni&from=gy">谴责中共所作所为 何韵诗吁美国挺香港</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074956&key=nqynnipsxfbxcbni&from=gy">实锤！川普会签署香港人权民主法案 李嘉诚为何深深得罪中共 预言一句话已经应验</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075375&key=nqynnipsxfbxcbni&from=gy">林郑邀区议员对话限制多 禁带头盔扩音器派传单录音录影 想发问要抽签</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075414&key=nqynnipsxfbxcbni&from=gy">对比特币没兴趣！私募股权巨头黑石CEO透露原因</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075450&key=nqynnipsxfbxcbni&from=gy">香港外国记者举行无声抗议  呼吁当局尊重新闻自由</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075097&key=nqynnipsxfbxcbni&from=gy">感受下世界最黑材料 1400万就这么废了…</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075128&key=nqynnipsxfbxcbni&from=gy">奇异的现象 这首歌在香港大街小巷传唱</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075435&key=nqynnipsxfbxcbni&from=gy">台湾派任香港法务秘书签证到期未获续签</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075383&key=nqynnipsxfbxcbni&from=gy">北京82岁法轮功学员马秀英遭冤判 被劫入狱</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075344&key=nqynnipsxfbxcbni&from=gy">【拍案惊奇】黄之锋等人美国会发言(字幕版)</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075308&key=nqynnipsxfbxcbni&from=gy">齐俊杰：银行的铁饭碗漏了！中国金融业生变 半年减员2％！达到数万人</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075242&key=nqynnipsxfbxcbni&from=gy">骗你的钱还骗你贷款 大陆诈骗套路 触目惊心！</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075238&key=nqynnipsxfbxcbni&from=gy">谭竞嫦美国国会香港人权法听证会证词</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075300&key=nqynnipsxfbxcbni&from=gy">中共“出入境身份认证”新规存隐患</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075160&key=nqynnipsxfbxcbni&from=gy">换马！美中将达成临时协议？ 美媒：有个大事迟早要发生 反川普损全球经济也被戳穿</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075369&key=nqynnipsxfbxcbni&from=gy">五家人权组织督促联合国秘书长就穆斯林问题谴责中国</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074957&key=nqynnipsxfbxcbni&from=gy">找到了？ 航空专家：已发现MH370确切位置</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075122&key=nqynnipsxfbxcbni&from=gy">【美国国会听证会】学界代表张昆阳：香港人预备好为香港而死</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075347&key=nqynnipsxfbxcbni&from=gy">不放弃信仰就被单独监禁 食不果腹 每天都被辱骂</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075365&key=nqynnipsxfbxcbni&from=gy">归正：对“群”的感悟</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075196&key=nqynnipsxfbxcbni&from=gy">“太子党”叶选平过世 叶剑英后人现状揭秘</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075166&key=nqynnipsxfbxcbni&from=gy">为什么地球上的水 几亿年都没有过期 一放到瓶里就有保质期了</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075246&key=nqynnipsxfbxcbni&from=gy">日本研发出人造血 无视一切血型</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075309&key=nqynnipsxfbxcbni&from=gy">鲁比奥︰国务院已就《香港人权与民主法案》提出技术性建议</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075642&key=nqynnipsxfbxcbni&from=gy">专家：华为领跑5G是谎言 美日技术最好</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075091&key=nqynnipsxfbxcbni&from=gy">申纪兰被授中共国家“勋章” 遭民众讥讽</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075125&key=nqynnipsxfbxcbni&from=gy">吹捧林彪的第一人 邓小平在文革中的表现</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075620&key=nqynnipsxfbxcbni&from=gy">沙特石油设施遭袭 北京日损9700万美元</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075316&key=nqynnipsxfbxcbni&from=gy">央视女主播曝港铁“出轨” 牵出她与周永康丑事</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075452&key=nqynnipsxfbxcbni&from=gy">走资忧虑升级 经销商：大量黄金正流出香港</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075447&key=nqynnipsxfbxcbni&from=gy">【禁闻】泄漏中共高层长寿秘密 医院广告被急删</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075813&key=nqynnipsxfbxcbni&from=gy">巡演播港警打人片段 Massive Attack乐队挺港人</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c945509&key=nqynnipsxfbxcbni&from=gy">王健最后晚餐 谍影重重 监控视频现神秘法国女人</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075677&key=nqynnipsxfbxcbni&from=gy">佩洛西领跨党派议员为港站台 美国会尽快通过《香港人权与民主法案》</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075710&key=nqynnipsxfbxcbni&from=gy">广东梅州警察接连绑架骚扰法轮功学员</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075730&key=nqynnipsxfbxcbni&from=gy">员工全美罢工 通用汽车加拿大分公司宣布裁员1200人</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075655&key=nqynnipsxfbxcbni&from=gy">川普新国安顾问曾访台 称一国两制是遮羞布</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075633&key=nqynnipsxfbxcbni&from=gy">黄之锋在美呼吁川普总统告诉习近平：香港『真普选』是唯一选择</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075039&key=nqynnipsxfbxcbni&from=gy">《石涛聚焦》听证会延长40分钟 来宾发言纪实</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c948722&key=nqynnipsxfbxcbni&from=gy">生死时速：中国楼市泡沫破灭与逃生的时间</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075440&key=nqynnipsxfbxcbni&from=gy">新规：中国记者须通过习思想考试</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075368&key=nqynnipsxfbxcbni&from=gy">爸爸的精子里不仅有遗传密码 还有他的人生</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c951321&key=nqynnipsxfbxcbni&from=gy">郭文贵北京豪宅拍卖 市值逾75亿元</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075348&key=nqynnipsxfbxcbni&from=gy">厉害！川普在中南海有内线？ 中国楼市降温买房开始亏钱 经左股右北京托市力不从心</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075168&key=nqynnipsxfbxcbni&from=gy">太子党叶选平故去 叶家五十多人近况曝光</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075662&key=nqynnipsxfbxcbni&from=gy">港警滥暴受害者希望众筹千万 控告前线警察</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075678&key=nqynnipsxfbxcbni&from=gy">美不满所罗门群岛与台断交 取消与其总理会晤计划</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075605&key=nqynnipsxfbxcbni&from=gy">湖南“文三爷”涉黑细节 愿出2000万撤销案子</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075538&key=nqynnipsxfbxcbni&from=gy">手机重启=关机再开机？原来差别竟这么大 可别再搞混了</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c920634&key=nqynnipsxfbxcbni&from=gy">林彪之子林立果对毛泽东的评价 中共至今不敢公开</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075821&key=nqynnipsxfbxcbni&from=gy">物价向上！工业向下！房价向左！经济向右！</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075604&key=nqynnipsxfbxcbni&from=gy">中共1万吨冻猪肉救急 网友怀疑‘僵尸肉’</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075659&key=nqynnipsxfbxcbni&from=gy">横河：重重危机之下中共能否摆脱70年大限魔咒？</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075644&key=nqynnipsxfbxcbni&from=gy">中信银行前行长落马 银行圈曾卷入2015年股灾</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075056&key=nqynnipsxfbxcbni&from=gy">比“学伴”风波更猛 山东大学官微凌晨连发招嫖广告</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075006&key=nqynnipsxfbxcbni&from=gy">美众议院委员会调查交通部长赵小兰</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074873&key=nqynnipsxfbxcbni&from=gy">刘鹤对习近平的最大贡献 是否会破灭？</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074735&key=nqynnipsxfbxcbni&from=gy">《石涛.News》李小琳为李鹏大做超渡法事 PK 天灭中共在港大</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075051&key=nqynnipsxfbxcbni&from=gy">妻遭警察翻墙入室劫走 丈夫奔走营救</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075082&key=nqynnipsxfbxcbni&from=gy">汕头交警单车扔铁骑两人重伤 警方公开说谎惹众怒</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075100&key=nqynnipsxfbxcbni&from=gy">何清涟/博尔顿：生不逢时的全球战略家</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075315&key=nqynnipsxfbxcbni&from=gy">程晓容：BBC访谈 陈方安生犀利回击中共</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075325&key=nqynnipsxfbxcbni&from=gy">移民领取中国退休金 须向加拿大申报</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075156&key=nqynnipsxfbxcbni&from=gy">曾节明：北京宁可引进非洲黑人 也要让计划生育卷土重来</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075468&key=nqynnipsxfbxcbni&from=gy">美10月排期 大陆职业移民第一优先转退为进</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074231&key=nqynnipsxfbxcbni&from=gy">首富之殇：投机者的黄昏</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074844&key=nqynnipsxfbxcbni&from=gy">网传李鹏托梦家人 求和尚超度视频流出（视频）</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074874&key=nqynnipsxfbxcbni&from=gy">【翻墙必看】海外亲共团体升血旗遭“砸场”</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075822&key=nqynnipsxfbxcbni&from=gy">杨雷：有北京背后撑腰 伊朗才敢如此放肆</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075829&key=nqynnipsxfbxcbni&from=gy">天真无邪的“吞金兽”</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075376&key=nqynnipsxfbxcbni&from=gy">赵柱帮议员：无惧「死亡对话」 拆穿林郑谎言</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075377&key=nqynnipsxfbxcbni&from=gy">刘梦熊 小民：北京炮轰李嘉诚 剑指何方？</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075407&key=nqynnipsxfbxcbni&from=gy">十一临近 大批VPN被逼关停 网民愤怒</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075494&key=nqynnipsxfbxcbni&from=gy">【拍案惊奇】美众院议长会香港代表黄之锋、何韵诗、罗冠聪等人 下周《香港人权与民主法案》进入表决程序</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1015190&key=nqynnipsxfbxcbni&from=gy">港媒: “美丽中国”只属于权贵</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075631&key=nqynnipsxfbxcbni&from=gy">找何超琼在联合国代表港人 美媒：中共继续错判形势</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075645&key=nqynnipsxfbxcbni&from=gy">陈思敏：中共“十一”猪荒危机难过</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075595&key=nqynnipsxfbxcbni&from=gy">慎入！恐怖视频：女童被像牲口一样仍进车厢</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1051553&key=nqynnipsxfbxcbni&from=gy">一文看懂 华为从上到下和中共的深层关系</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075427&key=nqynnipsxfbxcbni&from=gy">搞经济？习近平巡河南 学者分析：恐爆粮食危机</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1073013&key=nqynnipsxfbxcbni&from=gy">中方取消部分对美产品关税 川普：不惊讶</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075591&key=nqynnipsxfbxcbni&from=gy">肖钢首曝2015年股灾“真相”：与外部势力无关</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075632&key=nqynnipsxfbxcbni&from=gy">建议中共”照照镜子“ 美方或检视台湾关系法</a></td></tr>
+<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1074860&key=nqynnipsxfbxcbni&from=gy">一条广告泄露中共大秘密？大陆微信圈疯传</a></td></tr>
 
  <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
@@ -145,7 +144,7 @@
   <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="https://share.weiyun.com/5f7q4FC">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <a href="https://share.weiyun.com/5bQmUPm">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
    <tr>

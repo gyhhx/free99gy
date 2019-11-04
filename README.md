@@ -2,10 +2,13 @@
 <tr>
 ♡♡♡微信中无法打开的地区，请将本站网址 https://git.io/gy 输入到浏览器中打开。 
 </tr>
+ <tr>
+♡♡♡请及时收藏本站以免失连♡♡♡
+ </tr>
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E6%B1%9F%E5%B3%B0-1.jpg"></td>
  </tr>
-<<tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091055&key=eqxowaguscvmxdgc&from=gy">王友群：加速中共垮台的四中全会</a></td></tr>
+<tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091055&key=eqxowaguscvmxdgc&from=gy">王友群：加速中共垮台的四中全会</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091276&key=eqxowaguscvmxdgc&from=gy">【萧茗看世界】抗中共 蓬佩奥和彭斯演讲对比</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091152&key=eqxowaguscvmxdgc&from=gy">罕见 市委副书记任学锋缺席重庆高层会议</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091280&key=eqxowaguscvmxdgc&from=gy">金浴凤：中南海的蟾嬖链</a></td></tr>

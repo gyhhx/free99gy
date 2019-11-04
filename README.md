@@ -10,7 +10,7 @@
 </td>
  </tr>
   <tr>
-    <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
+    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1091055&key=eqxowaguscvmxdgc&from=gy">王友群：加速中共垮台的四中全会</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1091276&key=eqxowaguscvmxdgc&from=gy">【萧茗看世界】抗中共 蓬佩奥和彭斯演讲对比</a></td></tr>
@@ -52,7 +52,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1091209&key=eqxowaguscvmxdgc&from=gy">四中全会后港警执法更暴力 议员斥港澳政策</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://url.cn/5tMBI1h">中国人脸识别首案：动物园刷脸被教授起诉</a></td></tr>
  <tr>
-   <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E6%B1%9F%E5%B3%B0-1.jpg"></td>
+   <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
   </tr>
    <tr>
    <td colspan="2" align=center> 

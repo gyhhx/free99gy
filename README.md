@@ -84,6 +84,8 @@
     <td align=center>
 <a href="https://xball.casa/oo.aspx?name=c816650&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
+ </table>
+ 
 <table>
   <tr>
     <td colspan="2" align="center"><img src="https://gitlab.com/ogate2/up/raw/master/_/oGate65.jpg"/></td>

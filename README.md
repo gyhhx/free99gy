@@ -107,12 +107,7 @@
     <td align=center>
 <a href="https://tru28th.xwood.fun/oo.aspx?name=c816650&key=nqynnipsxfbxcbni&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-  <tr>
-    <td colspan="2" align="center"><img src="https://gitlab.com/ogate2/up/raw/master/_/oGate65.jpg"/></td>
-  </tr>
-  <tr>
-    <td colspan="2" align="center">网门<br/>免翻墙，一键浏览全球精粹资源<br/>头条，影视，声音，图书，直播<br/>安全，稳定，高速，及时，便利<br/>本页面是固定网址页面，请收藏</td>
-  <tr>
+
   <tr>
     <td colspan="2" align="center">请尝试不同入口，进入动态网址<br/>微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
   <tr>

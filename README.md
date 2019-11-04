@@ -1,11 +1,11 @@
  <table>
 <tr>
 ♡♡♡微信中无法打开的地区，请将本站网址 https://git.io/gy 输入到浏览器中打开。 
-　</tr>
- <tr>
+</tr>
+<tr>
 ♡♡♡请及时收藏本站以免失连♡♡♡
  </tr>
-   <tr>
+  <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
  </tr>
 <<tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091055&key=eqxowaguscvmxdgc&from=gy">王友群：加速中共垮台的四中全会</a></td></tr>

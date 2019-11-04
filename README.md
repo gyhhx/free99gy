@@ -6,7 +6,7 @@
 ♡♡♡请及时收藏本站以免失连♡♡♡
  </tr>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg"></td>
  </tr>
 <<tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091055&key=eqxowaguscvmxdgc&from=gy">王友群：加速中共垮台的四中全会</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091276&key=eqxowaguscvmxdgc&from=gy">【萧茗看世界】抗中共 蓬佩奥和彭斯演讲对比</a></td></tr>

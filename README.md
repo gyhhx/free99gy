@@ -46,7 +46,7 @@
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091154&key=eqxowaguscvmxdgc&from=gy">美中短暂贸易休战 俄经济部长：矛盾迟早会浮出水面</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091127&key=eqxowaguscvmxdgc&from=gy">离死不远了！川普：美国已知道IS新头领是谁</a></td></tr>
 <tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091209&key=eqxowaguscvmxdgc&from=gy">四中全会后港警执法更暴力 议员斥港澳政策</a></td></tr>
-<tr><td align="left"><a href="https://xball.casa/oo.aspx?name=c1091230&key=eqxowaguscvmxdgc&from=gy">中国人脸识别首案：动物园刷脸被教授起诉</a></td></tr>
+<tr><td align="left"><a href="https://url.cn/5tMBI1h">中国人脸识别首案：动物园刷脸被教授起诉</a></td></tr>
  <tr>
    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E6%B1%9F%E5%B3%B0-1.jpg"></td>
   </tr>

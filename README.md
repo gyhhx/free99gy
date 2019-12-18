@@ -1,12 +1,12 @@
  <table>
 <tr>
 <td colspan="2" align=left>
-♡♡♡微信中无法打开的地区，请将本站网址 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
+♡微信中无法打开的地区，请将本站网址https://git.io/gytui或https://github.com/gyhhx/gy2 输入到浏览器中打开。 
  </td>
 </tr>
  <tr>
  <td colspan="2" align=left>
-♡♡♡请及时收藏本站以免失连♡♡♡
+♡请及时收藏本站以免失连♡♡♡
 </td>
  </tr>
   <tr>

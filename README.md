@@ -1,7 +1,7 @@
  <table>
 <tr>
 <td colspan="2" align=left>
-♡♡♡微信中无法打开的地区，请将本站网址 https://git.io/gy 输入到浏览器中打开。 
+♡♡♡微信中无法打开的地区，请将本站网址 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
  </td>
 </tr>
  <tr>
@@ -9,6 +9,7 @@
 ♡♡♡请及时收藏本站以免失连♡♡♡
 </td>
  </tr>
+ <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=ogQuit&key=eqxowaguscvmxdgc&from=gy">三退保平安</a></td></tr>
   <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>

@@ -46,6 +46,10 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112465&key=eqxowaguscvmxdgc&from=gy">乱局下避险需求升温 香港现买金币潮！</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112463&key=eqxowaguscvmxdgc&from=gy">在香港中资银行存款到期后 储户难取走资金</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112488&key=eqxowaguscvmxdgc&from=gy">科技新创公司补贴泡沫…破了</a></td></tr>
+ <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：年末四大天象 同指：亡君乱国」吉林陨石 广州四星连珠 新疆三日同辉 毛冥诞天狗食日-日蚀 推背图李淳风「日蚀 必有亡国死君之灾」「君失道而亡」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：全面小康倒计时？经济全是坏消息！七年当政，安倍完败习近平。欧盟主席有话说。战狼外交，烽烟四起</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1025998&key=eqxowaguscvmxdgc&from=gy">章天亮-天亮时分：中共139亿资金流入台湾影响大选|台湾最应该做的是这个</a></td></tr>
+
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112441&key=eqxowaguscvmxdgc&from=gy">颜丹：教育经济挤水分 中共忙找替罪羊</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112456&key=eqxowaguscvmxdgc&from=gy">中共网控再升级  制作及转发视频要实名制</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1112464&key=eqxowaguscvmxdgc&from=gy">若特朗普成功连任 伊万卡暗示或离开白宫</a></td></tr>

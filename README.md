@@ -29,6 +29,10 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114303&key=eqxowaguscvmxdgc&from=gy">川普击毙伊朗二号人物 对中共释何种信号</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114323&key=eqxowaguscvmxdgc&from=gy">武汉爆不明病毒性肺炎 全球戒备</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114301&key=eqxowaguscvmxdgc&from=gy">伊拉克为伊朗将领送葬 美军再袭亲伊朗民兵车队</a></td></tr>
+ <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：武汉新型传染病毒呈大爆发 刘伯温太白山记已预言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：川普果断斩首伊朗二号人物，美伊战争一触即发？北京角色尴尬，曾派出神秘高官</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy">江峰时刻：川普下令：伊朗第二号人物、圣城旅将军苏莱曼尼，在伊拉克被美军无人机除掉；美伊已经处于战争状态，美侨撤离；中共可否浑水摸鱼</a></td></tr>
+
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114307&key=eqxowaguscvmxdgc&from=gy">猎杀行动前 川普沉着冷静 还打了18洞高尔夫</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114317&key=eqxowaguscvmxdgc&from=gy">新加坡现首例武汉肺炎 港府提升应对级别</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1114326&key=eqxowaguscvmxdgc&from=gy">曾呼真主伟大巴黎男随机斩人 1死4伤</a></td></tr>

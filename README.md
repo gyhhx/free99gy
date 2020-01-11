@@ -16,7 +16,7 @@
   <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
-<<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1116415&key=eqxowaguscvmxdgc&from=gy">苏莱曼尼案震撼 传中南海8&quot;常委&quot;议安保</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1116415&key=eqxowaguscvmxdgc&from=gy">苏莱曼尼案震撼 传中南海8&quot;常委&quot;议安保</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1116414&key=eqxowaguscvmxdgc&from=gy">美军无人机再出击 塔利班分离司令遭击毙</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1116413&key=eqxowaguscvmxdgc&from=gy">夏小强：中共操控台湾大选失败 蔡英文可能将大胜</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1116421&key=eqxowaguscvmxdgc&from=gy">黑龙江富豪在加被分尸108块 7女带娃争遗产</a></td></tr>

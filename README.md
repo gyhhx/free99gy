@@ -7,7 +7,12 @@
  <tr>
  <td colspan="2" align=left>
 ♡敬请及时收藏本站以免失连
-♡大疫当前，敬请转发给亲友了解真实资讯 
+  <tr>
+<td colspan="2" align=left>
+♡大疫当前，敬请转发给亲友了解真实资讯
+ </td>
+</tr>
+
 </td>
  </tr>
   <tr>

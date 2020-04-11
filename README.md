@@ -80,7 +80,7 @@
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1155292&key=exgxucyqmkwgvwch&from=gy">疫情爆发牵动粮食危机 国家粮食和物资储备局二把手换马</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1155230&key=exgxucyqmkwgvwch&from=gy">17岁高中生制作中共病毒追踪网站 被CDC表扬</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1155228&key=exgxucyqmkwgvwch&from=gy">越南挑战中共抗疫外交的主导地位</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1155278&key=exgxucyqmkwgvwch&from=gy">【现场视频】中俄陆上通道关闭 绥芬河建方舱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/I6M2od">【现场视频】中俄陆上通道关闭 绥芬河建方舱</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>

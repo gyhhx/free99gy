@@ -19,7 +19,7 @@
   </tr>
 <tr>
 <td colspan="2" align=left>
-♡收藏本站网址https://git.io/gy 或 https://github.com/gyhhx/gy1 以免失联。 
+♡收藏本站网址https://git.io/gytui 或 https://github.com/gyhhx/gytui 以免失联。 
  </td>
 </tr>
 <td colspan="2" align=left>
